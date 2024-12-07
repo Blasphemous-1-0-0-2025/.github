@@ -1,4 +1,4 @@
-![ss_b74f57919e88283fac75389e76ead2fed73997e5 600x338](https://github.com/user-attachments/assets/a877cb2c-7276-4c0a-a645-0cb9a6e9dd0a)# Blasphemous APK 1.0.0 Free Download for Android (Latest Version 2025)
+# Blasphemous APK 1.0.0 Free Download for Android (Latest Version 2025)
 
 **Blasphemous**, the critically acclaimed action-platformer, brings its gothic aesthetic, intense combat, and rich lore to mobile devices with its **APK version 1.0.0**. This Android port ensures fans and newcomers alike can experience its brutal gameplay and intricate storytelling on the go. With a mix of **Metroidvania exploration**, **challenging boss fights**, and stunning pixel-art graphics, **Blasphemous APK 1.0.0** is a must-download for anyone seeking a dark, immersive gaming experience.
 
